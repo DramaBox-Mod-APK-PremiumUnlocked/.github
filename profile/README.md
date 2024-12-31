@@ -6,7 +6,7 @@
 | Tamanho: 45 Mb                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |  
 | Última Atualização: 28/12/2024                      | Categoria: Entertainment |
 
-## https://modhello.com/dramabox/
+## Baixar Agora: 🤞🤞🤞 [DramaBox Mod APK](https://modhello.com/dramabox/)
 
 ## O que é DramaBox?  
 
